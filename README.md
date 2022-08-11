@@ -2,5 +2,5 @@
 
 # Wagwan ya bloodclarts
 ## Im sins, and i'm probably skidding your code :demontime:
-### Cry. Fuck Cord, Replit.
-#### Verlox = Skid
+### discord.gg/arsenic
+#### Verlox, Russianheavy = Daddy.
