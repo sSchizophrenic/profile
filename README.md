@@ -1,5 +1,6 @@
 <div align="center">
 
-# Hey I'm sins
-## Relearning Languages🐭
-![Profile views](https://gpvc.arturio.dev/[sSchizophrenic])
+# Wagwan ya bloodclarts
+## Im sins, and i'm probably skidding your code :demontime:
+### Cry. Fuck Cord, Replit.
+#### Verlox = Skid
